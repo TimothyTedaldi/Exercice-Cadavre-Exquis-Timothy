@@ -6,3 +6,4 @@ Ou pas sa depend de la personne
 Joffrey se leva et alla à la cuisine pour se préparer un chocolat chaud. Pendant ce temps Hugo avait fait ses besoins sur le siège de Joffrey.
 
 de colère, joffrey lança son chocolat chaud sur hugo qui l'avala d'une traite o_o!
+Mais la taille du chocolat était tellement importante qu'il s'étrangla et tomba dans les pommes. Heureusement que les autres maitrisent les premiers soins.
