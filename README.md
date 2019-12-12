@@ -4,3 +4,5 @@ Jeudi 12 décembre 2006, il fait sombre dehors, la tempérrature avoisinant les 
 Ou pas sa depend de la personne 
 
 Joffrey se leva et alla à la cuisine pour se préparer un chocolat chaud. Pendant ce temps Hugo avait fait ses besoins sur le siège de Joffrey.
+
+de colère, joffrey lança son chocolat chaud sur hugo qui l'avala d'une traite o_o!
